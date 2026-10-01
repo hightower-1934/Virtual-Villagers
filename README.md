@@ -229,4 +229,4 @@ Virtual Villagers is available as a full free version. Enjoy all features and up
 Start your adventure today with Virtual Villagers! Download now and guide your tribe to success!
 
 ---
-**Last updated:** 2026-09-30 21:09:26 UTC
+**Last updated:** 2026-10-01 00:59:31 UTC
